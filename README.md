@@ -11,3 +11,7 @@ Dejare creditos a sus respectivos creadores.
 @LoliBot-MD
 
 El bot es de codigo abierto.
+
+Para usar el BOT contactame
+
++53 54716713
